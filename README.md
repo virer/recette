@@ -1,2 +1,2 @@
-# recette
-Recette
+# recettes
+Recettes
