@@ -8,6 +8,7 @@ Pour 3 personnes :
 - 1 gousse d'ail
 - 300 grammes de tomates cerises 
 - 250ml de crème entière
+- Parmesan
 - Huile d’olive 
 - sel et poivre
 
