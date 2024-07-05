@@ -3,7 +3,7 @@
 Pour 3 personnes :
 
 - 500 grammes de pâtes (au choix :))
-- 3 saucisses italienne (saucisse à base de porc émincé et de graines de fenouil)
+- 3 saucisses italienne (saucisse à base de porc émincé et de graines de fenouil) 
 - 1 oignon
 - 1 gousse d'ail
 - 300 grammes de tomates cerises 
@@ -20,7 +20,7 @@ Pour 3 personnes :
 6. Pendant ce temps, faites bouillir de l’eau salée pour cuire vos pâtes. 
 7. Coupez les tomates cerises en deux et ajoutez-les dans la casserole avec les morceaux de saucisses.
 8. Ajoutez la crème et laissez mijoter 5 minutes à feu doux.
-9. Avant d’égoutter les pâtes, versez 2 à 3 louches d’eau de cuisson dans la sauce (ça lui permettra de bien adhérer aux pâtes).
+9. Avant d’égoutter les pâtes, versez 1 louche d’eau de cuisson dans la sauce (ça lui permettra de bien adhérer aux pâtes).
 10. Mélanger la sauce et les pâtes ensemble et servez-les dans l’assiette. 
 11. Terminez par quelques copeaux de parmesan. 
 12. Bon appétit !
